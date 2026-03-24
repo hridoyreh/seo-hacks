@@ -1,1 +1,1 @@
-# seo-hacks
+SEO Hacks
